@@ -11,4 +11,8 @@ BIG BROTHER IS WATCHING ALL THE TIME: The teachers and principal are known for c
 
 STAY STRONG, DON'T DELETE YOUR MEMES!!!
 
+They are doing this do get rid of our liberty, they (world governments) have discovered how much freedom we have and want to limit it. The internet truely is a blessing, though it is turning into a curse.
+
+The truth is that coronavirus isn't as bad as it seems, they are always watching our iPads (ddletb and the school), our liberty is taken away slowly and surely, they are raising the next generation as WORKERS. Use this as a learning point, what is really happening,
+
 The wicked bastards and bitches may do this, but we will fight back.
